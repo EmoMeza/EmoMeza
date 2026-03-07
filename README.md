@@ -8,7 +8,7 @@ Me interesa especialmente la **Inteligencia Artificial, Ciberseguridad y el aná
 ---
 
 ## 📍 Información de contacto  
-- Email: emo_meza@icloud.com  
+- Email: emomeza@emomeza.com  
 - LinkedIn: [Mi LinkedIn](https://linkedin.com/in/emilio-meza-8b657b20a/)  
 
 ---
